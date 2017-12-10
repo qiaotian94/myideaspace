@@ -2,4 +2,5 @@
 
 Hi Humans!
 
-I am so happy today i join in github!
+i will insist on study prugramme
+i hope i can do everything good day by day!
